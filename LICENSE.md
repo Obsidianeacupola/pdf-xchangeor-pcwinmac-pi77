@@ -1,4 +1,4 @@
-# 
+# Profesional PDF-XChange Editor complementos para Mac OS | Mejor PDF-XChange Editor complementos para PC Windows. Con gestión de nóminas y gestión de inventario — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
